@@ -1,0 +1,6 @@
+- 👋 Hi, My name is Bekzod.
+- 👀 I’m interested in playing PUBG and programming. if you want to play pubg with me, My ID is 51981969740.
+- 🌱 I’m currently learning Js,html,css.
+- 💞️ I’m looking to collaborate on Telegram with you. My username in telegram is @bekzod_coderbro
+- 😄 Pronouns: bro
+- ⚡ Fun fact: I like playing video games.
